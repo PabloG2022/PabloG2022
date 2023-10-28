@@ -17,6 +17,6 @@
 </div>
 <br/>
 
-#### Cursando 2° semestre em análise e desenvolvimento de sistemas 
+#### Cursando 4° semestre em análise e desenvolvimento de sistemas 
 
 #### e-mail: pabloguilherme90@hotmail.com
